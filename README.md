@@ -10,4 +10,4 @@ Just a person
 *   ✉️  You can contact me at [luannv.ptithn@gmail.com](mailto:luannv.ptithn@gmail.com)
 *   🧠  I'm learning Cyber Security
 *   🤝  I'm open to collaborating on hacking facebook :v
-*   ⚡  I'm secretly Kira... but don't tell anyone :)))
+*   ⚡  I'm holding secretly Death Note... but don't tell anyone :)))
