@@ -4,7 +4,7 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 H4ck3r L0rd 😆
 --------------
 
-Just a son of my mother and father!
+Just a son of my mom and dad!
 
 *   🌍  I'm based in Hanoi
 *   ✉️  You can contact me at [luannv.ptithn@gmail.com](mailto:luannv.ptithn@gmail.com)
